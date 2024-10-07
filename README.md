@@ -1,0 +1,2 @@
+# Sonni-belgilash
+Kichik loyiha
